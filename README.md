@@ -1,0 +1,3 @@
+- 👋 Non
+- 👀  Python , Dark, Z C++, Kotlin
+- 💞️ I’m looking to collaborate on 
